@@ -1,1 +1,1 @@
-dorud bar shoma
+dorud bar shoma. che khabar?
