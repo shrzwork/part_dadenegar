@@ -1,1 +1,1 @@
-dorud bar shoma. che khabar?
+dorud bar shoma. che khabar? khubi?
