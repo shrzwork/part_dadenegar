@@ -1,0 +1,1 @@
+dorud bar shoma
