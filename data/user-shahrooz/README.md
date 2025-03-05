@@ -7,3 +7,4 @@ IN yek test admin ast
 3. sevom
 4. chahar
 5- panjom
+6- shesh
