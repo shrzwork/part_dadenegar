@@ -6,3 +6,4 @@ IN yek test admin ast
 2. dovom
 3. sevom
 4. chahar
+5- panjom
